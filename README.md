@@ -120,4 +120,4 @@ Please visit my [website](http://alfredfrancis.github.io) to see my personal cha
 **Free Software, Hell Yeah!**
 <hr></hr>
 
-_Made with :heart: at God's Own Country_.
+_Made with :heart: at Allah Own Country_ :heart: Pakistan :heart:.
